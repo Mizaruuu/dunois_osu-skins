@@ -23,7 +23,7 @@ Click on the skin name to download.
 # [Dunois+Outcast v2](https://mizaru.s-ul.eu/HUE7yhR9)
 ![](https://osu.ppy.sh/ss/12174793)
 
-# [Dunois+Outcasted](https://mizaru.s-ul.eu/HUE7yhR9)
+# [Dunois+Outcasted](https://mizaru.s-ul.eu/qTRSDFor)
 ![](https://osu.ppy.sh/ss/12174784)
 
 # [Dunois+Effervescence](https://mizaru.s-ul.eu/hpxh7QMV)
